@@ -1,0 +1,1 @@
+No thanks - just a sample
